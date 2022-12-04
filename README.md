@@ -15,5 +15,3 @@
 - 💬 Ask me about my dog :dog: Scooby
 - 😄 Pronouns: she/her
 - ⚡ Hobbies: reading 📘, cycling 🚴, and taking care of my houseplants 🌱
-- 🐚 Fun fact: During the pandemic, I started a 501(c)(3) cat rescue 🐱 and found homes for over 100 cats 😺
-- :telephone_receiver: Work: I work in the finance industry, specifically wealth management! :moneybag:
